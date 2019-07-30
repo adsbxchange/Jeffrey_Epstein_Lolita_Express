@@ -3,7 +3,7 @@ Please credit ADSBexchange.com if you use this data for any publicly available t
 
 ADSBexchange.com logo in svg is located in repository.
 
-Jeffrey Epstein pedophile and his flights history for the world to see - courtesy of ADSBexchange.com
+Jeffrey Epstein convicted sex offender and his flights history for the world to see - courtesy of ADSBexchange.com
 
 N908JE
 N212JE 
