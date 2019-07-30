@@ -1,5 +1,5 @@
 # Jeffrey_Epstein_Lolita_Express
-Please credit ADSBexchange.com if you use this data for any publically available purpose, text, graphics, or audio. 
+Please credit ADSBexchange.com if you use this data for any publicly available text, graphic, video, or audio. 
 
 ADSBexchange.com logo in svg is located in repository.
 
